@@ -1,1 +1,1 @@
-orale
+orale que onda
