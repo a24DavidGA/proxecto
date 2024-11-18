@@ -1,1 +1,1 @@
-orale que onda
+orale que onda wey
